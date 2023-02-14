@@ -10,7 +10,7 @@
 
 - 👯 I’m looking to collaborate on **Apple Academy**
 
-- 💬 Ask me about **Apps, Websites, css, swift**
+- 💬 Ask me about **APPS, WEBSITES, CSS, SWIFT**
 
 - 📫 How to reach me **Aljwharahkhelaiwi@gmail.com**
 
